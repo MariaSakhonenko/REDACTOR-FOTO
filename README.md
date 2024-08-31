@@ -1,0 +1,1 @@
+# REDACTOR-FOTO
